@@ -2,7 +2,7 @@
 
 I'm a developer/cultural producer, who loves to create, communicate, and collaborate.
 
-Originally from 🇨🇳, spent 4 years in 🇺🇸, currently lives in 🇳🇿.
+🇨🇳 🇺🇸 🇳🇿
 
 #
 
